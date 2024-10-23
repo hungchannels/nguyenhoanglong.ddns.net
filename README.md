@@ -1,1 +1,3 @@
-# nguyenhoanglong.ddns.net
+- **__*ＰｈｕｎｇＰｈｉＨｕｎｇ（フャナ）*__**
+- https://phungphihung.ddns.net
+- https://kichhoat.ddns.net
